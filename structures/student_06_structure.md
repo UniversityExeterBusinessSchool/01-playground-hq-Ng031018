@@ -11,3 +11,4 @@ That I have to build a purple frame with the lego.
 
 ## Questions I Have
 there's not enough purple lego bricks 
+![IMG_2479](https://github.com/user-attachments/assets/0c31c498-8d50-4a82-a760-2d34d41bec25)
